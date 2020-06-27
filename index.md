@@ -10,7 +10,13 @@ Tommy Shelby ist der Anführer der Peaky Blinders in Gangs of Birmingham. Das ch
 * selbstsicher, der geborene Anführer
 
 ## Zitate
-Grace Burgess: > You think I am a whore.
-Tommy Shelby: > Everyone is a whore, Grace. We just sell different parts of ourselves.
+Grace Burgess:
+> You think I am a whore.
 
-Tommy Shelby: > All religion is a foolish answer to a foolish question.
+Tommy Shelby:
+> Everyone is a whore, Grace. We just sell different parts of ourselves.
+
+Tommy Shelby:
+> All religion is a foolish answer to a foolish question.
+
+<img src="https://assets.entrepreneur.com/content/3x2/2000/20190918135414-tommy-shelby-peaky-blinders.jpeg" />
